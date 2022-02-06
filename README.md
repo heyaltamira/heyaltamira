@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @heyaltamira 
+- 👀 I’m interested in building awesome stuff
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on anything relating to daos, nfts and crypto. 
